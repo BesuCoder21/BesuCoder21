@@ -6,8 +6,8 @@
 - I am learning SQL,pyhton, HTML
 - 💞️ I’m looking to collaborate on coding practice,web developing and tech events
 ---> Now i am just learning
-  How to reach me
-  ON email:- besobelagit1921@gmail.com
-  on telegram:-https://t.me/caco1921
-  I am ready to learn with open mind and work with you,if you want talk related content with me, WELLCOME
+ - How to reach me
+  -ON email:- besobelagit1921@gmail.com
+  -on telegram:-https://t.me/caco1921
+ - I am ready to learn with open mind and work with you,if you want talk related content with me, WELLCOME
  
